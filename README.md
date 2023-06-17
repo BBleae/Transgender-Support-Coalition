@@ -19,6 +19,7 @@ Transgender Support Coalition希望透過網路管道為跨性別者提供經濟
 ## 如何參與
 
 1.在「README.md」簽署您的帳號
+
 2.加入[Transgender Support Coalition](https://teams.microsoft.com/l/team/19%3aWhMZPifPGC5HlB9r9nWlXZpDEbwpc5pfKc6X1r9tvlw1%40thread.tacv2/conversations?groupId=f64bafd1-3287-423a-bba3-c4e0c49166e6&tenantId=24840ee3-aa68-4f59-98b6-5edd2e160375)
 
 ## 署名
