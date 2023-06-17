@@ -26,9 +26,10 @@ Transgender Support Coalition希望透過網路管道為跨性別者提供經濟
 
 > 請在署名後手動更改計數
 
-> 已有一人簽署
+> 已有二人簽署
 
 - [Suzuki Chinatsu×Suzumiya🍥](https://github.com/ChinatsuSuzuki6)
+- [Breaking_Lead🍥](https://github.com/BreakingLead)
 
 ## 感謝
 
