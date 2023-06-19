@@ -22,6 +22,12 @@ Transgender Support Coalition希望透過網路管道為跨性別者提供經濟
 
 2.加入[Transgender Support Coalition](https://teams.microsoft.com/l/team/19%3aWhMZPifPGC5HlB9r9nWlXZpDEbwpc5pfKc6X1r9tvlw1%40thread.tacv2/conversations?groupId=f64bafd1-3287-423a-bba3-c4e0c49166e6&tenantId=24840ee3-aa68-4f59-98b6-5edd2e160375)
 
+3.關注我們的[推特帳號](https://twitter.com/TSC_tw)
+
+4.關注我們的[頻道](https://t.me/TSC_tw)
+
+5.給我們捐錢（）
+
 ## 署名
 
 > 請在署名後手動更改計數
@@ -30,6 +36,14 @@ Transgender Support Coalition希望透過網路管道為跨性別者提供經濟
 
 - [Suzuki Chinatsu×Suzumiya🍥](https://github.com/ChinatsuSuzuki6)
 - [Breaking_Lead🍥](https://github.com/BreakingLead)
+
+## 社群媒體
+
+> 請注意：下面的所有記錄都是「按現狀」進行的，如果與事實不符請修正。
+
+1.[推特帳號](https://twitter.com/TSC_tw)
+
+2.[頻道](https://t.me/TSC_tw)
 
 ## 感謝
 
